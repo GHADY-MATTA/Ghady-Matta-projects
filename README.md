@@ -1,2 +1,0 @@
-# Ghady-Matta-projects
-portfolio
